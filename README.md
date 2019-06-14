@@ -1,1 +1,1 @@
-# nikodemcuprys.github.io
+# Witam na gicie bolgera Nikodema Cuprysia
